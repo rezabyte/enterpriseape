@@ -8,7 +8,7 @@ Powerful Software
 
 Feel free to access [my protfolio](http://www.rorlab.com/).
 
-> ## Lorem ipsum dolor sit amet, nemore adolescens his no, nam ex vide liber consequat.
+> ## Lorem ipsum dolor sit amet
 >
 > Ea singulis voluptaria his, in dolores assueverit eos. Vis at aliquip fuisset, id probo officiis eum. Vix et illud facer vivendum, id nec illud fuisset mediocrem, fugit fabulas partiendo vim id. Idque delicata te mei.
 >
